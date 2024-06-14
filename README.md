@@ -1,2 +1,2 @@
 # Kaiju-Script
-This is fucking shit
+This is not mine LOL
